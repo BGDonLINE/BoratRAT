@@ -7,7 +7,7 @@ Malware hunters/analyst idiots should do their research before posting garbage
 instead of compete who will copy/paste faster or simply get a normal life cause clearly this isn't proffesion for you. 
 Some people actually rely on your trash posts! 
 // 
-For other side, just....DUDE!? 
+For other side(1x37x), just....DUDE!? 
 You do know that you do more harm than benefit with things like this?? 
 Especially when you skid public thing leave proper credits at least...
 
