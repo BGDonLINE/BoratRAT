@@ -3,7 +3,7 @@ Shame on you(both sides)
 
 So...What's the hype around Borat Rat!? 
 It's damn DcRat! 
-Malware hunters/analyst idiots should do their research before posting garbage 
+Malware hunter/analyst idiots should do their research before posting garbage 
 instead of compete who will copy/paste faster or simply get a normal life cause clearly this isn't proffesion for you. 
 Some people actually rely on your trash posts! 
 // 
