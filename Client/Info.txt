@@ -1,0 +1,1 @@
+Client is in Server\Class1.cs converted to base64 string
